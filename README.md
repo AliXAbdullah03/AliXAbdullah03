@@ -1,5 +1,5 @@
 # 👋 Hi there, I'm Ali Abdullah (aka Alpha)  
-🚀 **Machine Learning & AI Engineer | Tech Enthusiast | Innovator**
+🚀 **Machine Learning & AI Engineer | Tech Enthusiast |Full Stack Software Engineer | Innovator**
 
 ---
 
