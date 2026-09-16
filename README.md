@@ -19,8 +19,6 @@
 ---
 
 ### 💞️ Collaborating on:
-- **AI-driven marketing tools** that handle data analytics and automate brand strategies.
-- **Fraud detection systems** for industries like hair salons, spas, and beyond.
 - Innovative projects that contribute to **humanity's progress**.
 
 ---
