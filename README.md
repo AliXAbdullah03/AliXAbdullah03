@@ -27,7 +27,6 @@
 
 ### 📫 Let's connect!
 - **Email**: ali.abdullah.222003@gmail.com  
-- **Instagram**: [@simply.alphaa](https://www.instagram.com/simply.alphaa)
 
 ---
 
